@@ -35,82 +35,88 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The arte of diuine meditation profitable for all Christians to knowe and practise; exemplified with 
+
+1. To the right Worſhipful, Sir Richard Lea, Knight, all increaſe of true honour with God and men.
+
+1. THE SVMME OF THE Chapters.
+
 #####Body#####
 
-1. Chap. I.
+1. THE ART OF DIVINE MEDITATION.
 
-1. Chap. 2.
+    _ Chap. I.
 
-1. Chap. 3.
+    _ Chap. 2.
 
-1. Chap. 4.
+    _ Chap. 3.
 
-1. Chap. 5.
+    _ Chap. 4.
 
-1. Chap. 6.
+    _ Chap. 5.
 
-1. Chap. 7.
+    _ Chap. 6.
 
-1. Chap. 8.
+    _ Chap. 7.
 
-1. Chap. 9.
+    _ Chap. 8.
 
-1. Chap. 10.
+    _ Chap. 9.
 
-1. Chap. 11.
+    _ Chap. 10.
 
-1. Chap. 12.
+    _ Chap. 11.
 
-1. Chap. 13.
+    _ Chap. 12.
 
-1. Chap. 14.
+    _ Chap. 13.
 
-1. Chap. 15.
+    _ Chap. 14.
 
-1. Chap. 16.
+    _ Chap. 15.
 
-1. Chap. 17.
+    _ Chap. 16.
 
-1. Chap. 18.
+    _ Chap. 17.
 
-1. Chap. 19.
+    _ Chap. 18.
 
-1. Chap. 20.
+    _ Chap. 19.
 
-1. Chap. 21.
+    _ Chap. 20.
 
-1. Chap. 22.
+    _ Chap. 21.
 
-1. Chap. 23.
+    _ Chap. 22.
 
-1. Chap. 24.
+    _ Chap. 23.
 
-1. Chap. 25.
+    _ Chap. 24.
 
-1. Chap. 26.
+    _ Chap. 25.
 
-1. Chap. 27.
+    _ Chap. 26.
 
-1. Chap. 28.
+    _ Chap. 27.
 
-1. Chap. 29.
+    _ Chap. 28.
 
-1. Chap. 30.
+    _ Chap. 29.
 
-1. Chap. 31.
+    _ Chap. 30.
 
-1. Chap. 32.
+    _ Chap. 31.
 
-1. Chap. 33.
+    _ Chap. 32.
 
-1. Chap. 34.
+    _ Chap. 33.
 
-1. Chap. 35.
+    _ Chap. 34.
 
-1. Chap. 36.
+    _ Chap. 35.
 
-1. Chap. 37.
+    _ Chap. 36.
+
+    _ Chap. 37.
 
 **Types of content**
 
